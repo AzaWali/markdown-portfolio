@@ -1,1 +1,1 @@
-Replace this with a list of your favorite things.
+You can check out my other talks and streams 
